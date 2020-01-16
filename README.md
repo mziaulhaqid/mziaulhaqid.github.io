@@ -1,5 +1,5 @@
 LIVE NOW, VISIT:
 
-# https://www.mziaulhaqid.com
+# https://www.mziaulhaq.com
 
 My Simple Portfolio
