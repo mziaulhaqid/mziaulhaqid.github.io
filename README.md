@@ -1,4 +1,5 @@
 LIVE NOW, VISIT:
-mziaulhaqid.github.io
+
+# https://www.mziaulhaqid.com
 
 My Simple Portfolio
